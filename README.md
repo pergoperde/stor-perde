@@ -1,0 +1,2 @@
+# stor-perde
+Stor Perde Sistemleri özellikle ülkemizde en çok tercih edilen mekanizmalı perde sistemlerindendir. Stor Perde sistemlerinde, perde bir ruloya sarılır. Rulonun yanında bulunan kontrol zinciri vasıtasıyla perde isteğe göre açılır ya da kapanır. Özellikle küçük penceresi olan iç mekanlarda manuel kontrollü stor perdeler kullanılırken daha büyük camekanı bulunan ortamlarda manuel kontrol zor olacağından motorlu stor perde sistemleri kullanılmaktadır. Basit mekanizması sayesinde minimum arıza sorunu ortaya çıkar. http://www.pergoperde.com.tr/#!stor-perde/
